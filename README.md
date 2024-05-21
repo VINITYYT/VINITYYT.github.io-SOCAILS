@@ -1,1 +1,1 @@
-# VINITYYT.github.io-SOCAILS
+# VINITYYT.github.io.SOCAILS
